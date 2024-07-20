@@ -1,5 +1,7 @@
 ( DON'T COPY OR TAKE INSPO FROM MY SKINS . )
 
+![](https://files.catbox.moe/ozozhj.png)
+
 B E L L .
 
 They/Them .
