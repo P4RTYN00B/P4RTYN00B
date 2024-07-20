@@ -11,3 +11,5 @@ They/Them .
 #. My adhd effects me ALOT . you will see me stim, zone out, etc.
 
 #. I can't control my anger, i am a senstive person when it comes to sudden emotions
+
+#. I can get paranoid quickly, i have extreme anixety so please don't tell me random upsetting facts since people apparently like to tell me a lot of those.. keep that in mind.
