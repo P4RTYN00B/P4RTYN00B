@@ -1,5 +1,3 @@
-( DON'T COPY OR TAKE INSPO FROM MY SKINS . )
-
 ![](https://files.catbox.moe/ozozhj.png)
 
  B E L L .
@@ -11,12 +9,14 @@ They/Them .
 
 ![](https://files.catbox.moe/ozozhj.png)
 
-#. Not a fan of dupes, #1 black ops: cold war fan.
+   Do not copy or take inspo from my skins!!![](https://files.catbox.moe/b2j1cs.gif)
+Not a huge fan of dupes.
+ i am not going to be serious most of the time. 
 
-#. I'm not the best at being serious, but please tell me when i need to be serious since i can not see social cues.
+![](https://files.catbox.moe/nvoaqu.gif)
 
-#. My adhd effects me ALOT . you will see me stim, zone out, etc.
+1[](https://files.catbox.moe/2xsc1y.gif) @centipest !!  my lovely boyfriend ![](
 
-#. I can't control my anger, i am a senstive person when it comes to sudden emotions
+![](https://files.catbox.moe/i65ayo.gif)
 
-#. I can get paranoid quickly, i have extreme anixety so please don't tell me random upsetting facts since people apparently like to tell me a lot of those.. keep that in mind.
+![](https://files.catbox.moe/ozozhj.png)
