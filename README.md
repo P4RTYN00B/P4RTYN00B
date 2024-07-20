@@ -3,6 +3,9 @@
 ![](https://files.catbox.moe/ozozhj.png)
 
  B E L L .
+ 
+ ![](https://files.catbox.moe/hvns8j.gif)
+
 
 They/Them .
 
@@ -10,7 +13,7 @@ They/Them .
 
 ![](https://files.catbox.moe/ozozhj.png)
 
-![](https://files.catbox.moe/mkyfbw.gif) #. Not a fan of dupes, #1 black ops: cold war fan.
+#. Not a fan of dupes, #1 black ops: cold war fan.
 
 #. I'm not the best at being serious, but please tell me when i need to be serious since i can not see social cues.
 
@@ -18,4 +21,4 @@ They/Them .
 
 #. I can't control my anger, i am a senstive person when it comes to sudden emotions
 
-#. I can get paranoid quickly, i have extreme anixety so please don't tell me random upsetting facts since people apparently like to tell me a lot of those.. keep that in mind. ![](https://files.catbox.moe/f6on80.gif)
+#. I can get paranoid quickly, i have extreme anixety so please don't tell me random upsetting facts since people apparently like to tell me a lot of those.. keep that in mind.
