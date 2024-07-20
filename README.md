@@ -2,7 +2,7 @@
 
  B E L L . / P O O B !!
 
- ![](https://files.catbox.moe/n920du.png)
+ ![](https://files.catbox.moe/zbguk9.webp)
  
 
 They/Them .
