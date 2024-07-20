@@ -2,10 +2,12 @@
 
 ![](https://files.catbox.moe/ozozhj.png)
 
-B E L L .
+##B E L L .
 
 They/Them .
+![](https://files.catbox.moe/olno71.png) ![](https://files.catbox.moe/rrk5qu.png) ![](https://files.catbox.moe/0hoyg6.png)
 
+![](https://files.catbox.moe/ozozhj.png)
 #. Not a fan of dupes, #1 black ops: cold war fan.
 
 #. I'm not the best at being serious, but please tell me when i need to be serious since i can not see social cues.
