@@ -4,8 +4,6 @@
 
  B E L L .
  
- ![](https://files.catbox.moe/hvns8j.gif)
-
 
 They/Them .
 
