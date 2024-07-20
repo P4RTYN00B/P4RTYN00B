@@ -16,8 +16,7 @@ Not a huge fan of dupes.
 ⠀i am not going to be serious most of the time. 
 
 
-⠀⠀⠀⠀ ![](https://files.catbox.moe/rvkffk.webp)
-
+⠀⠀⠀⠀ ![](https://files.catbox.moe/dv7qbe.webp)
 
 ![](https://files.catbox.moe/2xsc1y.gif) @centipest !!  my lovely boyfriend !
 
