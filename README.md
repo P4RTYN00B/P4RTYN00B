@@ -13,16 +13,16 @@ They/Them .
 
 ⠀⠀⠀Do not copy or take inspo from my skins ![](https://files.catbox.moe/f77dbm.gif)
    
-Not a huge fan of dupes ![](https://files.catbox.moe/93cxg7.gif)
+Not a huge fan of ~~dupes~~ ![](https://files.catbox.moe/93cxg7.gif)
 
-⠀i will not take you seriously if i don't like you. ![](https://files.catbox.moe/xsugvg.png)
+⠀i **will not** take you *seriously* if i _don't_ like you. ![](https://files.catbox.moe/xsugvg.png)
 
-I am a pretty kind person! biggg people pleaser unless i don't like you. ![](https://files.catbox.moe/zlstcd.gif)
+I am a pretty **kind** person! *biggg* people pleaser unless i don't like _you_. ![](https://files.catbox.moe/zlstcd.gif)
 
 
 ⠀⠀⠀⠀ ![](https://files.catbox.moe/dv7qbe.webp)
 
-![](https://files.catbox.moe/2xsc1y.gif) @centipest !!  my lovely boyfriend !
+![](https://files.catbox.moe/2xsc1y.gif) @centipest !!  my lovely **boyfriend** !
 
 ![](https://files.catbox.moe/i65ayo.gif)
 
