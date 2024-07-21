@@ -26,4 +26,6 @@ They/Them .
 
 ![](https://files.catbox.moe/i65ayo.gif)
 
+![](https://files.catbox.moe/u3ndys.gif) ![](https://files.catbox.moe/o93f7l.gif)
+
 ![](https://files.catbox.moe/ozozhj.png)
