@@ -11,13 +11,13 @@ They/Them .
 
 ![](https://files.catbox.moe/ozozhj.png)
 
-⠀⠀⠀Do not copy or take inspo from my skins!! ![](https://files.catbox.moe/f77dbm.gif)
+⠀⠀⠀Do not copy or take inspo from my skins ![](https://files.catbox.moe/f77dbm.gif)
    
-Not a huge fan of dupes.
+Not a huge fan of dupes ![](https://files.catbox.moe/93cxg7.gif)
 
-⠀i will not take you seriously if i don't like you.
+⠀i will not take you seriously if i don't like you. ![](https://files.catbox.moe/xsugvg.png)
 
-I am a pretty kind person! biggg people pleaser unless i don't like you. 
+I am a pretty kind person! biggg people pleaser unless i don't like you. ![](https://files.catbox.moe/zlstcd.gif)
 
 
 ⠀⠀⠀⠀ ![](https://files.catbox.moe/dv7qbe.webp)
