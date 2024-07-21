@@ -15,7 +15,9 @@ They/Them .
    
 Not a huge fan of dupes.
 
-⠀i am not going to be serious most of the time. 
+⠀i will not take you seriously if i don't like you.
+
+I am a pretty kind person! biggg people pleaser unless i don't like you. 
 
 
 ⠀⠀⠀⠀ ![](https://files.catbox.moe/dv7qbe.webp)
